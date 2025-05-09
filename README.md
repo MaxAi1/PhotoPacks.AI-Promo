@@ -17,8 +17,8 @@ PhotoPacks.AI is revolutionizing digital photography by offering an AI-powered p
 Investing in premium photo-editing software can be costly, especially for freelancers and small businesses. PhotoPacks.AI’s **65% discount** dramatically reduces this barrier, allowing users to access **AI-powered retouching, object removal, and HD enhancements** at a fraction of the original price. Whether you're editing product photos for an eCommerce store, refining social media visuals, or restoring old images, this deal makes high-end editing tools affordable. Additionally, the discount applies sitewide, meaning every plan—from monthly subscriptions to lifetime licenses—qualifies for massive savings. By using a promo code, you can experiment with advanced features risk-free, ensuring professional results without straining your budget.  
 ### [Use This Link To Get 65% OFF ](https://www.photopacks.ai/?via=abdul).
 
+[![Discount button](https://github.com/user-attachments/assets/c1600de4-7bf2-4be2-bac9-e78806328bba)](https://www.photopacks.ai/?via=abdul)
 
-[![Discount button](https://github.com/user-attachments/assets/831e9985-10ca-4fc1-84e2-20602654677a)](https://www.photopacks.ai/?via=abdul)
 
 
 ## **How to Find Active PhotoPacks.AI Coupons (2025 Edition)**  
@@ -27,7 +27,6 @@ Securing a valid PhotoPacks.AI promo code requires a mix of timing and resourcef
 ### [Use This Link To Get 65% OFF ](https://www.photopacks.ai/?via=abdul).
 
 
-[![Discount button](https://github.com/user-attachments/assets/33883ec6-0fd7-4a4a-84bf-65a5ee83feb2)](https://www.photopacks.ai/?via=abdul)
 
 
 ## **Step-by-Step Guide to Redeeming Your 65% Off Discount**  
